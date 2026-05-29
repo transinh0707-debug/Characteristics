@@ -33,6 +33,155 @@
 
 ---
 
+## 🗣️ CÂU HỎI 1 — Nếu Cô Gái Đang Tìm Hiểu Hỏi Về Quan Điểm Tình Yêu & Mối Tình Quá Khứ
+
+> **Nguyên tắc vàng:** Thành thật nhưng đừng kể chi tiết. Rút ra bài học thay vì than vãn. Tạo cảm giác Sinh là người trưởng thành, đã trải qua và hiểu mình hơn.
+
+### Khi cô ấy hỏi: *"Anh có từng yêu chưa? Mối tình cũ như thế nào?"*
+
+**Cách trả lời khéo:**
+> *"Có, anh đã từng yêu nghiêm túc. Nhưng nhìn lại thì mình đã chọn sai thời điểm — người đó chưa sẵn sàng cho một mối quan hệ mới, mà anh lại đầu tư quá nhiều. Sau đó anh hiểu ra rằng yêu không chỉ về cảm xúc, còn phải đúng thời điểm và đúng người đang sẵn lòng."*
+
+**Nếu cô ấy hỏi thêm: *"Anh có còn thương không?"***
+> *"Không còn thương theo nghĩa đó nữa. Nhưng biết ơn vì nhờ đó anh hiểu mình muốn gì hơn — một người ổn định, hướng gia đình, và sẵn sàng đi cùng nhau về lâu dài."*
+
+**Nếu cô ấy hỏi: *"Quan điểm của anh về tình yêu là gì?"***
+> *"Anh nghĩ tình yêu cần có nền tảng — không chỉ rung động nhất thời. Hai người phải có cùng định hướng, cùng muốn xây dựng thứ gì đó bền vững. Anh không thích yêu mà không biết đi về đâu."*
+
+### ⚠️ Điều KHÔNG nên làm
+- ❌ Đừng kể chi tiết tên, hoàn cảnh, hay câu chuyện dài dòng về mối cũ
+- ❌ Đừng nói xấu người cũ — dù gì đi nữa
+- ❌ Đừng tỏ ra vẫn còn buồn hay tiếc nuối — cô gái đang tìm hiểu sẽ rút lui
+- ❌ Đừng so sánh cô ấy với người cũ dù là khen
+
+### ✅ Thông điệp muốn truyền đạt
+- Sinh đã từng yêu nghiêm túc → không phải người sống hời hợt
+- Đã rút được bài học → trưởng thành, không lặp lại sai lầm
+- Biết mình muốn gì → người có định hướng rõ ràng
+
+---
+
+## 👣 CÂU HỎI 2 — Cách Tiếp Cận & Giao Tiếp Khi Gặp Lại Tuyết Anh
+
+> **Nhắc lại bối cảnh:** Tuyết Anh hướng nội, dè chừng, đang xử lý chuyện cũ nhưng đã tự nhận thức được. Đã đi ăn nhóm 3 người (tháng 5). Kênh tiếp xúc còn mở.
+
+### Trước buổi gặp — Chuẩn bị tâm lý
+- Vào gặp với thái độ **bạn bè tự nhiên**, không phải "đi tán"
+- Mục tiêu buổi đó: **để cô ấy cảm thấy thoải mái và vui** — không cần "chốt" gì cả
+- Tắt áp lực nội tâm — người hướng nội cảm nhận được khi ai đó đang "cố"
+
+### Trong buổi gặp — Chi tiết từng tình huống
+
+**Khi mới gặp (5 phút đầu):**
+> Chào tự nhiên, nở nụ cười thật, không vồ vập.
+> Câu đầu tiên nên nhẹ: *"Tuyết Anh đi được không? Đường có kẹt không?"*
+> Không cần compliment ngoại hình ngay — cô ấy dè chừng, sẽ awkward.
+
+**Khi chọn chỗ ngồi / gọi đồ:**
+> Hỏi cô ấy trước: *"Tuyết Anh hay ăn gì không? Ở đây có [món] ngon lắm."*
+> Nhỏ thôi nhưng thể hiện: anh chú ý đến sở thích của em.
+
+**Khi nói chuyện (20–40 phút):**
+> Dùng công thức: **Hỏi → Lắng nghe → Phản hồi → Chia sẻ ngắn về bản thân → Hỏi tiếp**
+>
+> Chủ đề nên khai thác:
+> - Công việc xét nghiệm: *"Ngày đi làm của Tuyết Anh trông như thế nào vậy? Mình tưởng tượng mãi không ra."*
+> - Đồng Tháp: *"Về quê lần gần nhất là hồi nào? Đồng Tháp có gì đặc sắc không?"*
+> - Leo núi: *"Tuyết Anh đang nhắm chuyến leo núi nào tiếp theo chưa?"*
+
+**Tạo khoảnh khắc 1-1 trong nhóm:**
+> Khi cả nhóm đang ăn hoặc nghỉ, tự nhiên ngồi gần và bắt đầu cuộc trò chuyện riêng. Không cần kéo cô ấy ra khỏi nhóm — chỉ cần tạo bong bóng 2 người trong không gian chung.
+
+**Cuối buổi:**
+> Hỏi nhẹ: *"Tuyết Anh về bằng gì? Có cần mình đưa không?"*
+> Dù cô ấy từ chối, câu hỏi đó đã truyền tín hiệu quan tâm.
+
+### Sau buổi gặp — Tin nhắn follow-up (trong vòng 24h)
+> *"Hôm nay vui ha Tuyết Anh. [Kể lại một chi tiết buổi đó — món ăn ngon, câu chuyện vui]. Về đến nhà ổn chưa?"*
+
+Ngắn gọn. Chân thật. Không cần hỏi dồn dập hay khen ngợi quá mức.
+
+---
+
+## ✨ CÂU HỎI 3 — Gây Ấn Tượng & Cho Cô Ấy Biết Mình Đang Để Ý Mà Không Gây Khó Chịu
+
+> **Nguyên tắc:** Tán tỉnh thông minh = cho người ta *cảm nhận* được sự quan tâm trước khi *nghe* lời nói thẳng.
+
+### 5 hành động cụ thể tạo ấn tượng
+
+| Hành động | Cách thực hiện | Tại sao hiệu quả |
+|---|---|---|
+| **Nhớ chi tiết nhỏ** | Lần sau nhắc lại điều cô ấy kể lần trước | Người hướng nội rất trân trọng — "anh ấy thật sự lắng nghe" |
+| **Quan tâm không hỏi giá** | Nhắn hỏi khi biết cô ấy mệt/bận: *"Hôm nay đi làm ổn không?"* | Không phải bạn bè nào cũng làm điều này |
+| **Giúp đỡ cụ thể** | Biết cô ấy cần gì → tự nhiên hỗ trợ (như đã làm trong chuyến leo núi) | Cho thấy năng lực và tính cách thật |
+| **Khen đúng lúc, đúng điểm** | Khen tính cách thay vì ngoại hình: *"Tuyết Anh nhận xét chuyện này hay lắm"* | Không gây awkward, tạo cảm giác được nhìn nhận thật sự |
+| **Tạo trải nghiệm chung** | Rủ đi những nơi phù hợp sở thích cô ấy (núi, quán ăn ngon) | Ký ức chung = sợi dây kết nối tình cảm tự nhiên |
+
+### Cách để cô ấy biết mình đang tán mà không lộ liễu
+
+**Tầng 1 — Quan tâm (tuần 1-2):**
+Hỏi thăm, nhớ chi tiết, nhắn tin nhẹ nhàng. Cô ấy bắt đầu chú ý: *"Anh này khác bạn bè."*
+
+**Tầng 2 — Tín hiệu nhẹ (sau 1-2 buổi gặp):**
+> *"Mình thấy nói chuyện với Tuyết Anh dễ chịu lắm."*
+> Đơn giản. Không ép cô ấy phải phản hồi gì.
+
+**Tầng 3 — Thể hiện rõ ý định (sau khi đã đi 2 người):**
+> *"Mình muốn tìm hiểu Tuyết Anh thêm, nếu Tuyết Anh không phiền."*
+> Một câu, rõ ràng, không vòng vo. Tôn trọng quyền từ chối.
+
+### ⚠️ Ranh giới không được vượt
+- ❌ Không nhắn tin liên tục nếu không có phản hồi
+- ❌ Không tán tỉnh qua comment mạng xã hội — rất dễ gây khó chịu
+- ❌ Không đụng chạm thể xác khi chưa có sự thoải mái rõ ràng
+- ❌ Không khen ngoại hình kiểu: *"Em xinh quá"* — quá lộ, người dè chừng sẽ thu mình lại
+- ❌ Không tạo áp lực trả lời: *"Sao Tuyết Anh không nhắn lại?"*
+
+---
+
+## 💬 CÂU HỎI 4 — Chủ Đề Nói Chuyện & 3 Mẩu Chuyện Vui Để Bắt Chuyện
+
+### Chủ đề nói chuyện phù hợp với Tuyết Anh
+
+| Chủ đề | Câu mở đầu gợi ý |
+|---|---|
+| Công việc y tế | *"Công việc xét nghiệm có những ca nào buồn cười hay kỳ lạ không?"* |
+| Quê Đồng Tháp | *"Đồng Tháp có đặc sản gì mà người Sài Gòn ít biết không?"* |
+| Leo núi / phượt | *"Tuyết Anh hay đi spontaneous hay phải lên kế hoạch kỹ trước?"* |
+| Ẩm thực Sài Gòn | *"Tuyết Anh có quán nào hay ăn ở đây chưa? Hay để mình dẫn đi thử chỗ mới?"* |
+| Sư Tử vs Sư Tử | *"Tuyết Anh có tin cung hoàng đạo không? Mình với Tuyết Anh đều Sư Tử — nghe nói hợp nhau lắm đó."* *(nhẹ nhàng, hài hước)* |
+| Kế hoạch cuối tuần | *"Cuối tuần này Tuyết Anh thường làm gì? Hay ở nhà hay hay đi chơi?"* |
+
+---
+
+### 3 Mẩu Chuyện Vui Để Bắt Chuyện
+
+---
+
+**Mẩu 1 — Liên quan đến leo núi (phù hợp với cả 2)**
+
+> *"Hôm trước mình leo núi, đang hì hục leo thì thằng bạn nhắn tin hỏi: 'Mày đang làm gì đó?' Mình trả lời: 'Leo núi.' Nó hỏi lại: 'Ăn mừng gì vậy?' — như kiểu leo núi phải có lý do đặc biệt lắm. Mình không biết giải thích sao, thôi kệ. Tuyết Anh leo núi thường bị hỏi câu nào buồn cười không?"*
+
+*(Chuyện tự nhiên, mở ra câu hỏi ngược để cô ấy kể tiếp)*
+
+---
+
+**Mẩu 2 — Liên quan đến công việc lập trình (hài hước tự giễu)**
+
+> *"Hôm qua mình debug code từ sáng đến chiều, tìm mãi không ra lỗi. Cuối cùng phát hiện ra lỗi là… mình viết sai tên biến từ đầu. Mà lúc đó còn tưởng mình giỏi lắm. Công việc xét nghiệm của Tuyết Anh có kiểu 'lỗi ngớ ngẩn' nào tương tự không?"*
+
+*(Tự hạ mình hài hước → không kiêu ngạo, dễ gần; lại hỏi ngược để cô ấy mở chuyện)*
+
+---
+
+**Mẩu 3 — Chuyện quan sát đời thường (nhẹ nhàng, bất ngờ)**
+
+> *"Mình vừa thấy cái app nhắc uống nước — nhắc đúng lúc mình đang uống nước. Rồi mình ngồi 5 phút suy nghĩ: app đó thông minh hay mình quá đoán được? Tuyết Anh có app nào cài xong không bao giờ dùng không?"*
+
+*(Quan sát thú vị, hài hước nhẹ → dễ khiến người kia mỉm cười và kể chuyện của họ)*
+
+---
+
 ## 👤 Đối Tượng 1: YÊN
 
 ### Thông tin cơ bản
@@ -198,9 +347,10 @@
 - [ ] Nhớ 1 chi tiết nhỏ cô ấy kể để nhắc lại sau
 - [ ] Ngồi gần và nói chuyện tự nhiên 10–15 phút trong nhóm
 - [ ] Không nhắc chuyện cũ của cô ấy
+- [ ] Thử 1 trong 3 mẩu chuyện vui ở phần Câu Hỏi 4 để bắt chuyện
 - [ ] Sau buổi gặp: nhắn 1 câu đơn giản trong 1–2 ngày
 - [ ] Không gửi tin nhắn liên tục nếu cô ấy không phản hồi
 
 ---
 
-*Cập nhật lần cuối: 05/2026*
+*Cập nhật lần cuối: 05/2026 — bổ sung chiến lược Q1–Q4*
