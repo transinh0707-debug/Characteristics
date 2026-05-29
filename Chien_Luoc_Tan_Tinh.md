@@ -19,6 +19,82 @@
 
 ---
 
+## 🤝 GIỚI THIỆU BẢN THÂN TRONG BUỔI HẸN HÒ 1:1
+
+> **Nguyên tắc:** Không đọc CV, không khoe khoang. Kể chuyện tự nhiên, có điểm dừng để cô ấy hỏi thêm. Mục tiêu là tạo cảm giác *"anh này thú vị, mình muốn biết thêm"* — không phải gây ấn tượng bằng số liệu.
+
+---
+
+### 🎯 Cấu trúc giới thiệu lý tưởng (5–7 phút, không quá)
+
+**Mở đầu nhẹ — Gốc gác & hành trình:**
+> *"Mình người Huế, nhưng vào Sài Gòn học từ hồi đại học — Bách Khoa. Tốt nghiệp xong thì ở lại luôn, tính ra cũng hơn 10 năm rồi. Huế thì đẹp, nhưng Sài Gòn nó cuốn mình ở lại hồi nào không hay."*
+
+*(Tạo cảm giác có gốc rễ nhưng dám thay đổi — không phải người bó buộc)*
+
+---
+
+**Phần công việc — Nói đủ để thú vị, không nói để khoe:**
+> *"Mình làm lập trình cho mấy con chip nhỏ — kiểu như não của máy móc, thiết bị điện tử. Nghe kỹ thuật lắm nhưng thực ra công việc mình hay nhất là ngồi tìm lỗi — có hôm tìm cả ngày mà lỗi chỉ là... sai một dấu chấm phẩy."*
+
+*(Tự giễu nhẹ → không kiêu ngạo, dễ gần)*
+
+Nếu cô ấy hỏi thêm về lương/thu nhập — **không nói thẳng con số**, thay vào đó:
+> *"Đủ sống tốt, đủ đi chơi, đủ để dành — mình không phàn nàn."*
+
+---
+
+**Phần cuộc sống — Cho cô ấy thấy Sinh có chiều sâu:**
+> *"Ngoài giờ làm thì mình hay chạy bộ buổi sáng, tập gym, cuối tuần hay đi leo núi nếu có người rủ. Không phải dân thể thao chuyên nghiệp gì — nhưng mình thích cái cảm giác vận động xong người nhẹ hẳn."*
+
+> *"Mình cũng đang có căn hộ đang xây, dự kiến nhận nhà đầu năm sau — nên giờ hay đùa là mình đang 'thuê chỗ tạm' chờ về nhà mới."*
+
+*(Đề cập nhà nhẹ nhàng, không phô — nhưng cô ấy sẽ tự hiểu đây là người có định hướng)*
+
+---
+
+**Chốt giới thiệu — Mở cửa để cô ấy kể về mình:**
+> *"Thôi kể vậy đủ rồi, mình hay kể hơi dài. Tuyết Anh thì sao — ở Sài Gòn lâu chưa hay mới lên?"*
+
+*(Dừng đúng lúc. Không độc thoại. Chuyển qua hỏi cô ấy ngay.)*
+
+---
+
+### 📋 Bảng: Nên nói & Không nên nói
+
+| Chủ đề | ✅ Nên nói thế này | ❌ Tránh nói thế này |
+|---|---|---|
+| **Công việc** | *"Làm lập trình chip, hay ngồi tìm lỗi cả ngày"* | *"Mình làm ở Renesas, lương X triệu..."* |
+| **Thu nhập** | *"Đủ sống tốt, đủ để dành"* | Con số cụ thể — quá sớm |
+| **Căn hộ** | *"Đang chờ nhận nhà đầu năm sau"* | *"Mình mua căn hộ 2.4 tỷ..."* |
+| **Bằng cấp** | Chỉ đề cập nếu được hỏi | Tự liệt kê IELTS, ISTQB, PMP |
+| **Mối cũ** | Nếu hỏi: trả lời ngắn gọn theo script Q1 | Kể chuyện dài dòng |
+| **Thể thao** | *"Hay leo núi cuối tuần"* | Liệt kê hết các môn |
+| **Quê hương** | *"Người Huế, vào Sài Gòn từ hồi đại học"* | Kể chi tiết gia đình quá sớm |
+
+---
+
+### 💡 3 điều cô ấy nên *cảm nhận* được sau khi Sinh tự giới thiệu
+
+1. **Người này ổn định** — có công việc, có định hướng, không trôi dạt
+2. **Người này không phô trương** — có nhiều thứ nhưng không cần khoe
+3. **Người này thú vị** — nói chuyện có duyên, biết tự giễu, biết dừng đúng lúc
+
+---
+
+### ⚡ Script xử lý nếu bị hỏi bất ngờ
+
+**"Anh làm lương bao nhiêu?"** *(hỏi thẳng)*
+> *"Đủ thoải mái — mình không giàu nhưng không lo chuyện tiền. Tuyết Anh hay hỏi thẳng vậy không?"* *(cười nhẹ, chuyển chủ đề)*
+
+**"Sao anh chưa có người yêu?"**
+> *"Vì mình kỹ hơn hồi trẻ — không muốn yêu cho có. Với lại chưa gặp đúng người."* *(đơn giản, không giải thích dài)*
+
+**"Anh tính mấy tuổi lấy vợ?"**
+> *"Mình không đặt deadline — nhưng nếu gặp đúng người thì không cần chờ lâu."* *(thành thật, không áp lực)*
+
+---
+
 ## ❤️ Quan Điểm Tình Yêu & Bài Học Quá Khứ
 
 ### Mối cũ (5/2022 – 10/2024 — Hà Nội)
